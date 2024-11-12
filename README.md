@@ -1,1 +1,0 @@
-# t4kurokorner.github.io
